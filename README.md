@@ -23,7 +23,7 @@ Seeking a challenging and rewarding position where the knowledge I have gained c
 
 ## Work Experience
 
-### Lab Assistant | New Core Lab, IIT Kanpur (3 years, 6 months)
+### Lab Assistant | New Core Lab, IIT Kanpur ( 5.5 years and in present)
 
 **Responsibilities**:
 - Installation, maintenance, and operation of PCs.
